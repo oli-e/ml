@@ -1,3 +1,3 @@
 # machine learning
 
-im learning how to make machine learn :)
+im learning how to make machine learn :smile:
